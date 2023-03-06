@@ -1,5 +1,1 @@
-# adampritchett
----
-Date:
-Subject:
----
+# adampritchett.com
