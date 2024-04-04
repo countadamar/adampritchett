@@ -1,1 +1,1 @@
-# adampritchett.com
+# Adam Pritchett's Public Website
